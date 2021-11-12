@@ -1,3 +1,3 @@
 # letzteparty.github.io
 
-Is this thing on?
+Is this thing on or what?
